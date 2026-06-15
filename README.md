@@ -13,6 +13,6 @@ Essas são minhas curiosidades
 
 
 
-      Para se comunicar maria.chiconato@escola.pr.gov.br
+      Para se comunicar: maria.chiconato@escola.pr.gov.br
   
-![](https://tenor.com/kSkjklYn9kC.gif)
+![](https://media1.tenor.com/m/1wLo3pMUXDMAAAAC/fluttershy-pony.gif)

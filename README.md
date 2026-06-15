@@ -11,4 +11,6 @@ Essas são minhas curiosidades
 - ⛪ sou catolioca ... ...
 - 🍰 sei cozinhar ...
 
-- Para se comunicar maria.chiconato@escola.pr.gov.br 
+
+
+      Para se comunicar maria.chiconato@escola.pr.gov.br 

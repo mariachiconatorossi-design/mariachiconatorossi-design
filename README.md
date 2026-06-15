@@ -14,4 +14,4 @@ Essas são minhas curiosidades
 
 
       Para se comunicar maria.chiconato@escola.pr.gov.br 
-![]https://tenor.com/kSkjklYn9kC.gif
+![](https://tenor.com/kSkjklYn9kC.gif)

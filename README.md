@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-ME ChAMO MARIA ALICE
+ME CHAMO MARIA ALICE
 
 
 Essas são minhas curiosidades
@@ -14,3 +14,4 @@ Essas são minhas curiosidades
 
 
       Para se comunicar maria.chiconato@escola.pr.gov.br 
+![]https://tenor.com/kSkjklYn9kC.gif

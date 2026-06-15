@@ -12,7 +12,7 @@ Essas são minhas curiosidades
 - 🍰 sei cozinhar ...
 
 
-
-      Para se comunicar: maria.chiconato@escola.pr.gov.br
+##Para se comunicar:
+  maria.chiconato@escola.pr.gov.br
   
 ![](https://media1.tenor.com/m/1wLo3pMUXDMAAAAC/fluttershy-pony.gif)
